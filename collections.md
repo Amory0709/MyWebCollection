@@ -10,4 +10,4 @@
 10. https://www.outreach.space/
 11. https://www.planetono.space/
 12. https://asanamisbawu.wixstudio.com/customscroll
-13. https://experience.staratlas.com/#  (https://www.hellomonday.com/work/staratlas)
+13. https://experience.staratlas.com/#  (https://www.hellomonday.com/work/staratlas) (https://www.hellomonday.com/)
