@@ -13,3 +13,4 @@
 13. https://experience.staratlas.com/#  (https://www.hellomonday.com/work/staratlas) (https://www.hellomonday.com/)
 14. https://www.hellomonday.com/
 15. https://malavikainmotion.com/
+16. https://app.detail.dev/scans
